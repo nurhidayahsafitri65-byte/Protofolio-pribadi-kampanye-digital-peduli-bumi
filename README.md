@@ -3,7 +3,7 @@ Halo, nama saya Nurhidayah safitri. Saya adalah siswi SMA kelas XI yang memiliki
 
 KEAHLIAN : Desain poster,canva,editing foto,microsoft Office. 
 
-KEGIATAN PEDULI BUMI : Mengurangi penggunaan plastik sekali,pakai membuang sampah pada tempatnya,menghemat listrik dan air,dan mengikuti kegiatan bersih lingkungan.
+KEGIATAN PEDULI BUMI : Mengurangi penggunaan plastik sekali pakai,membuang sampah pada tempatnya,menghemat listrik dan air,dan juga mengikuti kegiatan bersih lingkungan.
 
 KAMPANYE DIGITAL PEDULI BUMI:
 Bumi adalah rumah kita bersama.Mari menjaga lingkungan dengan mengurangi sampah plastik,menanam pohon,dan menggunakan sumber daya secara bijak agar generasi mendatang dapat menikmati lingkungan yang sehat.
